@@ -2,6 +2,6 @@
   
   - Truthfullness
   - Punctuality
-  - Honesty
+  - Honesty 🌝
     * ``Life Experiance ``
   
